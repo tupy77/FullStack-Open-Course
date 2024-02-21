@@ -1,0 +1,3 @@
+PRESENTACION EN INGLES PARA EL CURSO FULLSTACK OPEN. MI NOMBRE ES FRANCI:
+
+Hello! My name is Franci, I am 46 years old and I am from Spain. I am a student of the Fullstack Open course. I am very excited to be part of this community and to learn from all of you. I am a very curious person and I love to learn new things. I am passionate about technology and I am looking forward to learning a lot from this course. I am very happy to be here and I hope to be able to contribute to the community. I am looking forward to meeting all of you and learning from you. Thank you for this opportunity!
